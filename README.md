@@ -9,6 +9,6 @@
 - 🤔 I’m looking for help with ... Deep on CS
 - 💬 Ask me about ... js, py, ts and so on
 - 📫 How to reach me: ...
-- 😄 Pronouns: ... 
+- 😄 Pronouns: ... Bear :)
 - ⚡ Fun fact: ... Alwasy looking for new places to add more Edges
 
